@@ -1,0 +1,2 @@
+# boredom-curers
+Fun websites
